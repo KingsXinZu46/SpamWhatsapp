@@ -1,0 +1,2 @@
+# SpamWhatsapp
+Script By Xalbador, =¥=¥=
